@@ -1,4 +1,3 @@
-# eqpk3ia.github.io
 # User Manual for Sanket Parekh
 When dealing with me, the following outline my preferences, proclivities and other useful information.  This is meant be a quick guide, not an in-depth anaylsis.
 
