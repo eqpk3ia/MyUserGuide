@@ -6,7 +6,6 @@ When dealing with me, the following outline my preferences, proclivities and oth
 - *Focused* => I like to work focused. Try to avoid distractions.
 
 ## The times/hours I like to work
-- *Working hours* => I usually prefer to work more standard work day to be able to maintain work and personal life balance.
 - *Calendar Driven* => I tend to prefer to block my meetings, to limit flow disruptions. I keep my Calendar updated.
 
 ## The best ways to communicate with me
